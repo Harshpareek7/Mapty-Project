@@ -1,1 +1,1 @@
-This is malty psroject
+This is mapty project finals
